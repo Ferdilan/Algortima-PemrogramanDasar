@@ -1,0 +1,1 @@
+"Saya 🖤 bapak dan ibu setulus hati"
